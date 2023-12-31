@@ -2,7 +2,7 @@
 - 👀 I’m interested in IT
 - 🌱 I’m currently learning app development 
 - 💞️ I’m looking to collaborate on logo creation, animation, tutoring, etc
-- 📫 How to reach me 
+- 📫 How to reach me (call/Whatsapp 054677362)
 
 <!---
 Flicqxcalor/Flicqxcalor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
